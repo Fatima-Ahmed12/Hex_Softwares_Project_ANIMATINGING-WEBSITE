@@ -1,1 +1,1 @@
-# Hex_Softwares_Project_ANIMATINGING-WEBSITE
+# Hex_Softwares_Project_Animating-Website
